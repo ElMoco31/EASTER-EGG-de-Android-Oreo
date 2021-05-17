@@ -1,0 +1,1 @@
+el siguiente archivo está y la easter egg de Android oreo a menos que tenga otro dispositivo Android que no sea Android oreo no instale esto porque si tiene Android oreo es mejor descubrir el easter egg Por tu Cuenta
